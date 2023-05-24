@@ -2,7 +2,7 @@
 - 👀 I’m interested in Games
 - 🌱 I’m currently learning (school)
 - 💞️ I’m looking to collaborate on Gaming Stuff
-- 📫 How to reach me DM me on Discord
+- 📫 How to reach me DM me on Discord Or Instagram
 
 <!---
 IMMORTALxIG/IMMORTALxIG is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
