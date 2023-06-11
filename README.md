@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @IMMORTALxIG
-- 👀 I’m interested in Games
+- 👀 I’m interested in Games Dev
 - 🌱 I’m currently learning (school)
 - 💞️ I’m looking to collaborate on Gaming Stuff
 - 📫 How to reach me DM me on Discord Or Instagram
