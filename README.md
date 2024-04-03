@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @IMMORTALxIG
-- 👀 I’m interested in Games Dev
+- 👋 Hi, I’m @NotSoAbhinav
+- 👀 I’m interested in Dev
 - 🌱 I’m currently learning (school)
-- 💞️ I’m looking to collaborate on Gaming Stuff
+- 💞️ I’m learning
 - 📫 How to reach me DM me on Discord Or Instagram
 
 <!---
